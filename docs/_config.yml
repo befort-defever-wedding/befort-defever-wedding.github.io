@@ -21,14 +21,13 @@
 title: Befort-DeFever Wedding
 description: >- # this means to ignore newlines until "baseurl:"
  Lawrence, KS  |  December 30, 2023
-baseurl: "" # the subpath of your site, e.g. /blog
 domain: befort-defever-wedding.github.io
 url: https://befort-defever-wedding.github.io # the base hostname & protocol for your site, e.g. http://example.com
 
 # Build settings
 theme: minima
-# plugins:
-#  - jekyll-feed
+plugins:
+ - jekyll-feed
 
 # Exclude from processing.
 # The following items will not be processed, by default.

@@ -3,11 +3,13 @@ layout: default
 title: ""
 ---
 
+![here](/assets/collage.png)
+
 # Basics
 
 We are getting married in Lawrence, KS on December 30, 2023.
 We built this (most basic) website to share information about the wedding in the simplest possible manner.
-No life story or pictures here, just (hopefully) what you need to know.
+No life story, just what you need to know.
 More information will be added as the date approaches.
 
 # Lodging

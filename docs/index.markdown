@@ -14,9 +14,10 @@ More information will be added as the date approaches.
 
 # Lodging
 
-All are invited to stay at [The Historic Eldridge Hotel](https://eldridgehotel.com/) on Mass Street in Lawrence.
-The wedding party and family will be staying at this location.
-Other options near downtown Lawrence include the [Townplace Suites by Marriot](https://www.marriott.com/en-us/hotels/foets-towneplace-suites-lawrence-downtown/overview/) and [The Oread](https://theoread.com/).
+We encourage all to stay in the Lawrence, KS area. There are several options, including
+[The Historic Eldridge Hotel](https://eldridgehotel.com/),
+the [Townplace Suites by Marriot](https://www.marriott.com/en-us/hotels/foets-towneplace-suites-lawrence-downtown/overview/)
+and [The Oread](https://theoread.com/). More details will be provided as they become available.
 
 # Travel
 
@@ -25,7 +26,8 @@ Lawrence is a 45 minute drive from the airport. Car rental is recommended.
 
 # Day-of
 
-Plans are still being finalized...more to come soon!
+Plans are still being finalized...more to come soon! The ceremony will be held at Holy Name Church in Topeka, KS
+and the reception will be held at the Cider Gallery in Lawrence, KS.
 
 # Things to do
 

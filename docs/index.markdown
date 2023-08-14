@@ -22,7 +22,7 @@ the [Springhill Suites by Marriott](https://www.marriott.com/en-us/hotels/lwcks-
 and [The Oread](https://theoread.com/).
 Some guests have had issues booking at the Eldridge;
 if you wish to stay at the Eldridge, consider a refundable reservation at one of the other hotels as a placeholder.
-All three hotels are within reasonable proximity to Mass Street & activities (The Oread is furthest away, up a hill and on KU campus).
+All four hotels are within reasonable proximity to Mass Street & activities (The Oread is furthest away, up a hill and on KU campus).
 Please contact us if you are interested in booking through a room block.
 
 # Travel
@@ -44,22 +44,26 @@ We encourage guests to take the time to visit and explore Lawrence or relax.
 Lawrence is a fun town, assuming it's not the middle of an ice storm. Get some exercise by rock-chalk-jaywalking
 your way up and around on the [University of Kansas](https://ku.edu/) campus. If you plan on being in town
 a bit longer, don't forget that Kansas City is only a 45 minute drive.
-We've compiled a list of Lawrence beverage and dining suggestions below:
+We've compiled a (partial) list of Lawrence beverage and dining options below:
 
 **Coffee & Pastries:**
 * 1900 Barker
 * Wheatfields
+* The Java Break
 
 **Breakfast & Brunch:**
 * The Roost
 * Wheatfields
 * Ladybird Diner
 
-**Dinner:**
+**Lunch & Dinner:**
 * Mass St. Fish House
 * Merchants Pub & Plate
 * Culinaria Mediterranean Kitchen
 * The Mad Greek
+* The Burger Stand
+* Fuzzy's Taco Shop
+* Sylas and Maddy's Ice Cream (this counts as dinner)
 
 **Beer & Cocktail Bars:**
 * Lawrence Beer Co.

@@ -72,7 +72,7 @@ We've compiled a list of Lawrence beverage and dining suggestions below:
 We have a registry on The Knot. [Click here](https://www.theknot.com/befort-defever-wedding/registry) to view the registry.
 
 **Notes**:
-* We are excited to see family and friends at the wedding. Your presence would be more special than any gift.
-* Our reception is at an art gallery. We have a cash fund on the registry to support us buying a work of art from the gallery. This gift will be special to us and we will be sure to share photos of the purchased artwork.
+* We are excited to see family and friends at the wedding. Getting everyone together to celebrate the occasion is more important to us than gifts. Please do not feel obligated to get us anything.
+* If nothing on the registry suits your fancy, but you would still like to do something for us, please consider the cash fund to support buying a work of art from the Cider Gallery (our reception venue). In addition to being an event space, the Cider Gallery hosts a rotating collection of local artwork. We plan on purchasing a piece from the Cider Gallery for our home. This gift will be special to us and we will be sure to share photos of the artwork once we make our purchase.
 
 

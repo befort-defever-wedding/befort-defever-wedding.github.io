@@ -35,30 +35,33 @@ Car rental is recommended.
 
 The ceremony will be held at 2:00 pm at Holy Name Church in Topeka, KS
 and the reception will be held at 5:00 pm the Cider Gallery in Lawrence, KS.
+Even with the travel time between Topeka and Lawrence,
+there will be a small gap between the ceremony and the reception.
+We encourage guests to take the time to visit and explore Lawrence or relax.
 
 # Things to do
 
-Lawrence is normally a fun town, assuming it's not the middle of an ice storm. Get some exercise by rock-chalk-jaywalking
+Lawrence is a fun town, assuming it's not the middle of an ice storm. Get some exercise by rock-chalk-jaywalking
 your way up and around on the [University of Kansas](https://ku.edu/) campus. If you plan on being in town
 a bit longer, don't forget that Kansas City is only a 45 minute drive.
 We've compiled a list of Lawrence beverage and dining suggestions below:
 
-### Coffee & Pastries
+**Coffee & Pastries:**
 * 1900 Barker
 * Wheatfields
 
-### Breakfast & Brunch
+**Breakfast & Brunch:**
 * The Roost
 * Wheatfields
 * Ladybird Diner
 
-### Dinner
+**Dinner:**
 * Mass St. Fish House
 * Merchants Pub & Plate
 * Culinaria Mediterranean Kitchen
 * The Mad Greek
 
-### Beer & Cocktail Bars
+**Beer & Cocktail Bars:**
 * Lawrence Beer Co.
 * Free State Brewing Co.
 * The Bourgeois Pig
@@ -68,8 +71,8 @@ We've compiled a list of Lawrence beverage and dining suggestions below:
 
 We have a registry on The Knot. [Click here](https://www.theknot.com/befort-defever-wedding/registry) to view the registry.
 
-**Important notes**:
+**Notes**:
 * We are excited to see family and friends at the wedding. Your presence would be more special than any gift.
-* Our reception is at an art gallery. We have a cash fund on the registry to support us buying a work of art from the gallery. This will be an important piece for us and we will be sure to share photos of the purchased artwork with all who choose to support this gift.
+* Our reception is at an art gallery. We have a cash fund on the registry to support us buying a work of art from the gallery. This gift will be special to us and we will be sure to share photos of the purchased artwork.
 
 

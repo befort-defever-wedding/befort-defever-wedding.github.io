@@ -39,6 +39,10 @@ Even with the travel time between Topeka and Lawrence,
 there will be a small gap between the ceremony and the reception.
 We encourage guests to take the time to visit and explore Lawrence or relax.
 
+# RSVP
+
+Please RSVP [here](https://forms.gle/A2oBHFVoqkVnQ64S9).
+
 # Things to do
 
 Lawrence is a fun town, assuming it's not the middle of an ice storm. Get some exercise by rock-chalk-jaywalking

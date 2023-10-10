@@ -39,6 +39,14 @@ Even with the travel time between Topeka and Lawrence,
 there will be a small gap between the ceremony and the reception.
 We encourage guests to take the time to visit and explore Lawrence or relax.
 
+## Holy Name Church
+1114 SW 10th Ave.  
+Topeka, KS 66604  
+
+## Cider Gallery
+810 Pennsylvania St.  
+Lawrence, KS 66044  
+
 # RSVP
 
 Please RSVP [here](https://forms.gle/A2oBHFVoqkVnQ64S9).

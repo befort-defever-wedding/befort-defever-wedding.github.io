@@ -10,7 +10,39 @@ title: ""
 We are getting married in Lawrence, KS on December 30, 2023.
 We built this (most basic) website to share information about the wedding in the simplest possible manner.
 No life story, just what you need to know.
-More information will be added as the date approaches.
+
+# Day-of
+
+The ceremony will be held at 2:00 pm at Holy Name Catholic Church in Topeka, KS.
+The reception be held from 5:15 pm to 10:15 pm at the Cider Gallery in Lawrence, KS.
+Even with the travel time between Topeka and Lawrence,
+there will be a gap between the ceremony and the reception.
+We encourage guests to take the time to visit and explore Lawrence or relax.
+Lawrence has an active bar scene for those who wish to continue the
+celebration after the reception.
+
+## Transportation
+
+For all guests, we are offering transportation to and from the reception venue. Pickups will be
+provided at approximately 4:45 pm and 5 pm at the Springhill Suites and Townplace Suites.
+A shuttle will run from 8 pm to 11 pm to take guests back to Lawrence area hotels.
+
+Transportation from Lawrence to Topeka for the ceremony is available upon request.
+Please contact Bridgette or Ryan if you are interested. Further information will
+be provided for those that indicated interest on their RSVPs or via other means.
+
+Lawrence also has Uber and other transportation options.
+Please contact Bridgette and Ryan with any transport-related questions.
+
+## Addresses
+
+**Holy Name Catholic Church (Mater Dei Parish)**  
+1114 SW 10th Ave.  
+Topeka, KS 66604  
+
+**Cider Gallery**  
+810 Pennsylvania St.  
+Lawrence, KS 66044  
 
 # Lodging
 
@@ -31,25 +63,6 @@ For those traveling by airplane, we recommend flying into [Kansas City Interatio
 Lawrence is a 45 minute drive from the airport.
 Car rental is recommended.
 
-# Day-of
-
-The ceremony will be held at 2:00 pm at Holy Name Church in Topeka, KS
-and the reception will be held at 5:00 pm the Cider Gallery in Lawrence, KS.
-Even with the travel time between Topeka and Lawrence,
-there will be a small gap between the ceremony and the reception.
-We encourage guests to take the time to visit and explore Lawrence or relax.
-
-**Holy Name Church**  
-1114 SW 10th Ave.  
-Topeka, KS 66604  
-
-**Cider Gallery**  
-810 Pennsylvania St.  
-Lawrence, KS 66044  
-
-# RSVP
-
-Please RSVP [here](https://forms.gle/A2oBHFVoqkVnQ64S9).
 
 # Things to do
 

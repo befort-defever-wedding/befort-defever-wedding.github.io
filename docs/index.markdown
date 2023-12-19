@@ -23,16 +23,23 @@ celebration after the reception.
 
 ## Transportation
 
-For all guests, we are offering transportation to and from the reception venue. Pickups will be
-provided at approximately 4:45 pm and 5 pm at the Springhill Suites and Townplace Suites.
-A shuttle will run from 8 pm to 11 pm to take guests back to Lawrence area hotels.
+For all guests, we are offering a shuttle to and from the reception venue.
+
+4:45 pm - Pickup at the Townplace Suites. Please be ready by the front doors
+of the hotel lobby.
+
+5:00 pm - Pickup at the Springhill Suites. Please note that the shuttle cannot pull
+into the parking lot due to the the overhang. Please wait for the shuttle near the
+entrance to the parking lot.
+
+Shuttle service back to hotels will be available from 8 pm to 11 pm.
+
+Lawrence also has Uber and other transportation options.
+Please contact Bridgette and Ryan with any transport-related questions.
 
 Transportation from Lawrence to Topeka for the ceremony is available upon request.
 Please contact Bridgette or Ryan if you are interested. Further information will
 be provided for those that indicated interest on their RSVPs or via other means.
-
-Lawrence also has Uber and other transportation options.
-Please contact Bridgette and Ryan with any transport-related questions.
 
 ## Addresses
 

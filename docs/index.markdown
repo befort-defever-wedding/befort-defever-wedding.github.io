@@ -11,7 +11,17 @@ We are getting married in Lawrence, KS on December 30, 2023.
 We built this (most basic) website to share information about the wedding in the simplest possible manner.
 No life story, just what you need to know.
 
-# Day-of
+# Day-prior (12/29)
+
+We will be hosting a drop-in welcome reception for all guests at Lawrence Beer Co.
+(Pennsylvania St. location) on Friday evening from 5:00 pm - 6:45 pm. We look
+forward to the opportunity to visit with many of you during this time.
+We encourage all to attend and visit with us and other guests. We hope it is an
+opportunity for all to meet up with friends and make dinner plans for
+the evening - whether you chose to stay at Lawrence Beer Co. or explore
+the other dining options that Lawrence has to offer.
+
+# Day-of (12/30)
 
 The ceremony will be held at 2:00 pm at Holy Name Catholic Church in Topeka, KS.
 The reception be held from 5:15 pm to 10:15 pm at the Cider Gallery in Lawrence, KS.

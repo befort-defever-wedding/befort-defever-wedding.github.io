@@ -14,9 +14,9 @@ No life story, just what you need to know.
 # Day-prior (12/29)
 
 We will be hosting a drop-in welcome reception for all guests at Lawrence Beer Co.
-(Pennsylvania St. location) on Friday evening from 5:00 pm - 6:45 pm. We look
-forward to the opportunity to visit with many of you during this time.
-We encourage all to attend and visit with us and other guests. We hope it is an
+(Pennsylvania St. location) on Friday evening from 5:00 pm - 6:45 pm. If you are in town,
+please feel free to stop by to visit with us, our families, 
+and other guests. We hope it is an
 opportunity for all to meet up with friends and make dinner plans for
 the evening - whether you chose to stay at Lawrence Beer Co. or explore
 the other dining options that Lawrence has to offer.
@@ -42,7 +42,7 @@ of the hotel lobby.
 into the parking lot due to the the overhang. Please wait for the shuttle near the
 entrance to the parking lot.
 
-Shuttle service back to hotels will be available from 8 pm to 11 pm.
+Shuttle service back to all hotels in the Lawrence area  will be available from 8 pm to 11 pm.
 
 Lawrence also has Uber and other transportation options.
 Please contact Bridgette and Ryan with any transport-related questions.

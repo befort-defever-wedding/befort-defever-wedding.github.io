@@ -24,7 +24,7 @@ the other dining options that Lawrence has to offer.
 # Day-of (12/30)
 
 The ceremony will be held at 2:00 pm at Holy Name Catholic Church in Topeka, KS.
-The reception be held from 5:15 pm to 10:15 pm at the Cider Gallery in Lawrence, KS.
+The reception will be held from 5:15 pm to 10:15 pm at the Cider Gallery in Lawrence, KS.
 Even with the travel time between Topeka and Lawrence,
 there will be a gap between the ceremony and the reception.
 We encourage guests to take the time to visit and explore Lawrence or relax.

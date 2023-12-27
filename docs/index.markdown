@@ -35,7 +35,7 @@ celebration after the reception.
 
 For all guests, we are offering a shuttle to and from the reception venue.
 
-4:45 pm - Pickup at the TownPlace Suites. Please be ready by the front doors
+4:45 pm - Pickup at the TownePlace Suites. Please be ready by the front doors
 of the hotel lobby.
 
 5:00 pm - Pickup at the SpringHill Suites. Please note that the shuttle cannot pull
@@ -66,7 +66,7 @@ Lawrence, KS 66044
 We strongly encourage all to stay in the Lawrence, KS area.
 There are several options, including but not limited to,
 [The Historic Eldridge Hotel](https://eldridgehotel.com/),
-the [TownPlace Suites by Marriott](https://www.marriott.com/en-us/hotels/foets-towneplace-suites-lawrence-downtown/overview/),
+the [TownePlace Suites by Marriott](https://www.marriott.com/en-us/hotels/foets-towneplace-suites-lawrence-downtown/overview/),
 the [SpringHill Suites by Marriott](https://www.marriott.com/en-us/hotels/lwcks-springhill-suites-lawrence-downtown/overview/),
 and [The Oread](https://theoread.com/).
 Some guests have had issues booking at the Eldridge;

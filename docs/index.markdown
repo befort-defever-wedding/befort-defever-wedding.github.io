@@ -9,7 +9,6 @@ title: ""
 
 We are getting married in Lawrence, KS on December 30, 2023.
 We built this (most basic) website to share information about the wedding in the simplest possible manner.
-No life story, just what you need to know.
 
 # Day-prior (12/29)
 
@@ -45,11 +44,10 @@ entrance to the parking lot.
 Shuttle service back to all hotels in the Lawrence area  will be available from 8 pm to 11 pm.
 
 Lawrence also has Uber and other transportation options.
-Please contact Bridgette and Ryan with any transport-related questions.
 
-Transportation from Lawrence to Topeka for the ceremony is available upon request.
-Please contact Bridgette or Ryan if you are interested. Further information will
-be provided for those that indicated interest on their RSVPs or via other means.
+If you expressed interest in transportation from Lawrence to Topeka for the ceremony
+on your RSVP, you should have received additional information via email.
+
 
 ## Addresses
 

@@ -32,7 +32,7 @@ celebration after the reception.
 
 ## Transportation
 
-For all guests, we are offering a shuttle to and from the reception venue.
+For guests staying in Lawrence area hotels, we are offering a shuttle to and from the reception venue.
 
 4:45 pm - Pickup at the TownePlace Suites. Please be ready by the front doors
 of the hotel lobby.

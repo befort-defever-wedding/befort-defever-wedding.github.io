@@ -39,7 +39,7 @@ For all guests, we are offering a shuttle to and from the reception venue.
 of the hotel lobby.
 
 5:00 pm - Pickup at the Springhill Suites. Please note that the shuttle cannot pull
-into the parking lot due to the the overhang. Please wait for the shuttle near the
+into the parking lot due to the overhang. Please wait for the shuttle near the
 entrance to the parking lot.
 
 Shuttle service back to all hotels in the Lawrence area  will be available from 8 pm to 11 pm.
